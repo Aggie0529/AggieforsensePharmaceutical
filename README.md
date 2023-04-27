@@ -1,5 +1,5 @@
 # AggieforsensePharmaceutical
-I am Huang Weijie, and I really want to become an e-commerce operator for Sanse Pharmaceutical. Here are the five reasons why I think I can:
+I am Aggie, and I really want to become an e-commerce operator for Sanse Pharmaceutical. Here are the five reasons why I think I can:
 
 Relevant experience in e-commerce platforms: I have worked as a merchant operator in the TikTok e-commerce department before. Compared to other applicants, I am more sensitive to the interests of the platform, and I can communicate better with the platform. I also have a certain market insight and forecasting ability, which enables me to quickly grasp market trends, develop marketing strategies, and adjust marketing strategies based on market changes.
 Passion for e-commerce operations: I like changes and learning new things. E-commerce operations are positions that are fast-paced and require quick iterations. By doing this job, I can achieve a sense of accomplishment.
